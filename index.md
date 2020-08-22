@@ -1,37 +1,9 @@
-## Welcome to GitHub Pages
+# 不知道怎么做看这里
+[基尼试听链接教程：注意！与买号试听不一样](https://plxd1106.gitee.io/2020/08/12/%E5%9F%BA%E5%B0%BC%E8%AF%95%E5%90%AC%E9%93%BE%E6%8E%A5%E6%95%99%E7%A8%8B.html)
+[]
+# 基尼试听链接看这里
+[试听链接点我](https://shimo.im/docs/pVXKxWpdcY88PrYJ)
+# 特别提醒
+#### 务必检查是否成功登录！务必勤换号！每个号每小时只点同一个链接一次！
 
-You can use the [editor on GitHub](https://github.com/plxd1106/dne4/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
-
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
-
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/plxd1106/dne4/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+#基尼团号信息待更新
