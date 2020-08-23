@@ -3,7 +3,7 @@
 
 ****
 ### 基尼试听链接看这里
-[试听链接点我](https://shimo.im/docs/pVXKxWpdcY88PrYJ)  （回归期音源放出后更新链接）
+[试听链接点我](https://shimo.im/docs/pVXKxWpdcY88PrYJ)（回归期音源放出后更新链接）  
 务必检查是否成功登录！务必勤换号！每个号每小时只点同一个链接一次！
 
 ****
