@@ -12,7 +12,7 @@
 ****
 
 ### D&E第四张专辑回归进入倒计时，怦蓝现开启音源打投集资。
-往期明细见微博长文章：https://weibo.com/ttarticle/p/show?id=2309404517636108059033
+往期明细见微博长文章：[https://weibo.com/ttarticle/p/show?id=2309404517636108059033](https://weibo.com/ttarticle/p/show?id=2309404517636108059033)
 
 ![image](https://s1.ax1x.com/2020/08/23/dwEHz9.jpg)
 
