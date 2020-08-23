@@ -16,9 +16,8 @@
 往期明细见微博长文章：  
 [https://weibo.com/ttarticle/p/show?id=2309404517636108059033](https://weibo.com/ttarticle/p/show?id=2309404517636108059033)  
 打投明细和链接记录都将在首周结束后公示。请先查看二维码下方的说明，谢谢。
-
-![image](https://s1.ax1x.com/2020/08/23/dwEHz9.jpg)
-
+[![dwQKr4.md.png](https://s1.ax1x.com/2020/08/23/dwQKr4.md.png)](https://imgchr.com/i/dwQKr4)
+[![dwQ9Kg.md.png](https://s1.ax1x.com/2020/08/23/dwQ9Kg.md.png)](https://imgchr.com/i/dwQ9Kg)
 
 #### 一、本次音源JZ的用途：
 1、充值韩元，制作基尼试听链接。  
